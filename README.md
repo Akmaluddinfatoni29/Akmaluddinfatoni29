@@ -2,7 +2,7 @@
 - 👀 I’m interested in .learn to coding..
 - 🌱 I’m currently learning .all above to coding..
 - 💞️ I’m looking to collaborate on ...learning
-- 📫 How to reach me .very goods.
+- 📫 How to reach me .083897928729.
 - 😄 Pronouns: .great..
 - ⚡ Fun fact: .ok..
 
